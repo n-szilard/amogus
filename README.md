@@ -1,4 +1,4 @@
 # amogus
 AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA  
-most összeveszek magammal
-csak sikerült
+most összeveszek magammal  
+és megint
